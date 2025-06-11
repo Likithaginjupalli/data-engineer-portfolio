@@ -37,4 +37,5 @@
 
 📫 **Reach Me**  
 📧 likithaginjupalli2930@gmail.com  
-🔗 LinkedIn | GitHub
+[LinkedIn](https://www.linkedin.com/in/likithaginjupalli29) | [GitHub](https://github.com/Likithaginjupalli)
+
